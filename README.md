@@ -1,4 +1,4 @@
-Hello , EB-Sploit Is Create By Only One Developer!!!
+Hello , ED-Sploit Is Create By Only One Developer!!!
 
 My Roblox Profile : https://www.roblox.com/users/3921284509/profile
 
